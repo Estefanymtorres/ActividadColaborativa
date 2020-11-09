@@ -1,1 +1,1 @@
-# ActividadColaborativa
+# ActividaddeColaboración
